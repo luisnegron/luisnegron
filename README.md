@@ -1,6 +1,6 @@
 👋 Hi, I’m @luisnegron
 
-I am an enthusiastic student who enjoys creating and participating in projects that help make the world a better place, I also love learning new things and sharing what I know. 
+I’m an enthusiastic student who enjoys creating and participating in projects that help make the world a better place, I also love learning new things and sharing what I know. 
 
 👀 I’m interested in :
 
